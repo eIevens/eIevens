@@ -1,6 +1,7 @@
 
 <div align="center">
 
-<img width="550" height="325" alt="Untitled73_20260110051832" src="https://github.com/user-attachments/assets/f30c7756-b0d3-4678-aa43-8a522de2b512" />
+<img width="1280" height="720" alt="IMG_4993" src="https://github.com/user-attachments/assets/29075abc-769f-4b55-a6a3-187772803b9f" />
 
-my beautiful family
+
+get me out of the forest
